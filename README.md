@@ -13,3 +13,4 @@ thank you bro
 pray for me
 to the infinity
 listen to me
+roll 21 is absent
